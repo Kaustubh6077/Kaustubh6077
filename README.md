@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kaustubh6077
 - i currently am studying at vjti to pursue a degree of btech in computer engineering .
-- i am too muchpassionate about cars and like to be around and researh them.
+- i am too muchpassionate about cars and like to be around and research upon them.
 - wish to work upon a project that would integrate my knowledge through my education with my passion.
 
 <!---
